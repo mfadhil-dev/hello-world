@@ -1,2 +1,2 @@
 Hello!
-just a average programmer xD. but yeah, im gonna insert some of my project here later.
+just a average programmer xD, but yeah. im gonna insert some of my project here later
